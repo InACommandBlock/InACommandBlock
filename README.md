@@ -1,4 +1,4 @@
-I'm kinky.
+we must imagine sisyphos happy.
 
 <!---
 InACommandBlock/InACommandBlock is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
