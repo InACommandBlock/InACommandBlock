@@ -1,4 +1,4 @@
-we must imagine sisyphos happy.
+we must imagine sisyphus happy.
 
 <!---
 InACommandBlock/InACommandBlock is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
